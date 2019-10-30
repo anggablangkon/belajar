@@ -1,1 +1,2 @@
 dompet
+di bawa tuuyul
